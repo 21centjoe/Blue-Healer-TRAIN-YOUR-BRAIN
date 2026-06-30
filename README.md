@@ -3,6 +3,11 @@ Eating Numerical frequencies: testing
 
 obviously a lot of people don't believe that inverted scale in terms of computer programs can happen but as a linguist I know the power of telegraphic speech. I also know the power of encapsulated meaning, symbolic language and even proto graphemes. I've always believed that it's quantum. IF you say Grimm's law is quantum, how would that occur? DOES language have a linguistic field just like Quantum has a Quantum field? or is language fuel for a time machine that unlocks the brains potential?
 
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/76df6dac-3d1a-41e1-9d32-d6bbe23751ed" />
+
+
+https://gemini.google.com/share/3b01936b37d3?skid=879c9d25-62e6-4eee-afd2-f7c7834ba56c
+
 
 Open In Colab
 
